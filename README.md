@@ -6,4 +6,4 @@ Year of Creation: January, 2020
 E-mail: maturinnocent@gmail.com
 Social Media: https://www.facebook.com/incent.bwesun
 Github: https://www.github.com/bwesun
-Twitter: https://twitter.com/maturinnocent
+Twitter: https://twitter.com/matur_innocent
